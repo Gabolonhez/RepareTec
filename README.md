@@ -1,1 +1,1 @@
-# RepareTecno
+# RepareTec
